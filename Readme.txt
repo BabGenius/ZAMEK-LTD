@@ -1,6 +1,1 @@
-Thanks for downloading this template!
-
-Template Name: Append
-Template URL: https://bootstrapmade.com/append-bootstrap-website-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+At Zamek Limited, our commitment to precision and prosperity goes beyond words—it's woven into the success stories of our valued clients. But don't just take our word for it. Let the experiences of those who have journeyed with us speak volumes. Discover the transformative impact of our services through the words of our satisfied clients.
